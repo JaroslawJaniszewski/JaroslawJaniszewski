@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JaroslawJaniszewski
+- 👀 I’m interested in 3D printing
+- 🌱 I’m currently learning my baby steps trying to use Geeetech A10M
+- 📫 you can reach me through jerry@adraftdesign.com.au
